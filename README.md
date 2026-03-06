@@ -1,6 +1,9 @@
 
 <img width="10" src="https://cdn.discordapp.com/avatars/1452805779697700996/7c5d93a66637c3095c8e6f0f0b91e369.png?size=256"/>
 exposing this dolt
+other repo on other people acc 
+https://github.com/uwuxxx/vx-dev-exposed
+idk bro this just extended
 
 # idk
 <img width="552" height="740" alt="Screenshot 2026-03-06 174253" src="https://github.com/user-attachments/assets/b3b7d43f-a391-43bb-bb9d-fbb3e858263e" />
